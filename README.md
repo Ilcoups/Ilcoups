@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ilcoups
+- 👋 Yoo World, I’m @Ilcoups
 - 👀 I’m interested in tech, science, politics(world), business
 - 💞️ I’m looking to collaborate on making a world, people and ourselves better
 
